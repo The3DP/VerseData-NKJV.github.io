@@ -13,6 +13,11 @@ We will display previous Bible verses as well.
 ###### Also, a GitHub pages 232 error was fixed by removing a 'secondary' README.md
 ---
 
+## Bible verse for July 25th, 2026 (*1st Timothy 5:1-2, NKJV*):
+> ✞ **"Do not rebuke an older man, but exhort him as a father,
+> younger men as brothers, older women as mothers, younger women
+> as sisters, with all purity."**
+
 ## Bible verse for July 23rd, 2026 (*Isaiah 44:9, NKJV*):
 > ✞ **"Those who make an image, all of them are useless,
 > and their precious things shall not profit;
