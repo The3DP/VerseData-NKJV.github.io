@@ -1,17 +1,12 @@
 ## VerseData
-Welcome to VerseData! This mini [**Github Pages**](https://docs.github.com/en/pages) site is updated manually every day for a new and exciting Bible verse. 
+Welcome to VerseData! This mini [**Github Pages**](https://docs.github.com/en/pages) site is usually updated manually every day for a new and exciting Bible verse. 
 We will display previous Bible verses as well.
 
-###### UPDATING NOTE: The Bible verse updates that were set for February 12th, February 14th,
-###### and February 15th, along with a few others, were acidentaly forgotten. 
-###### We are sorry for this mistake and are sure that 
-###### nothing relative to this will ever occur again.
-
-###### BUG NOTES: This repo was on hold two times because of a problem occuring with Github Pages.
-###### We apologize for these delays.
-###### As of 2026, a new GitHub Pages site has now been deployed. 
-###### Also, a GitHub pages 232 error was fixed by removing a 'secondary' README.md
 ---
+
+## Bible verse for July 27th, 2026 (*Proverbs 23:3, NKJV*):
+> ✞ **"Foolishness is bound up in the heart of a child;
+> the rod of correction will drive it far from him."**
 
 ## Bible verse for July 25th, 2026 (*1st Timothy 5:1-2, NKJV*):
 > ✞ **"Do not rebuke an older man, but exhort him as a father,
