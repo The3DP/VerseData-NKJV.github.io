@@ -4,6 +4,10 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for July 30th, 2026 (*Proverbs 14:12, NKJV*):
+> ✞ **"There is a way that seems right to a man,
+> but its end is the way of death."**
+
 ## Bible verse for July 27th, 2026 (*Proverbs 23:3, NKJV*):
 > ✞ **"Foolishness is bound up in the heart of a child;
 > the rod of correction will drive it far from him."**
