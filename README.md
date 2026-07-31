@@ -4,6 +4,10 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for July 31st, 2026 (*Proverbs 1:7, NKJV*):
+> ✞ **"The fear of the Lord is the beginning of knowledge,
+> but fools despise wisdom and instruction."**
+
 ## Bible verse for July 30th, 2026 (*Proverbs 14:12, NKJV*):
 > ✞ **"There is a way that seems right to a man,
 > but its end is the way of death."**
