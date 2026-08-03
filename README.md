@@ -4,6 +4,10 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for August 3rd, 2026 (*Luke 18:25, NKJV*):
+> ✞ **"For it is easier for a camel to go through the
+> eye of a needle than for a rich man to enter the kingdom of God."**
+
 ## Bible verse for July 31st, 2026 (*Proverbs 1:7, NKJV*):
 > ✞ **"The fear of the Lord is the beginning of knowledge,
 > but fools despise wisdom and instruction."**
