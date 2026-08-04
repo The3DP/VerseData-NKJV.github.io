@@ -4,6 +4,11 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for August 4th, 2026 (*Galatians 5:17, NKJV*):
+> ✞ **"For the flesh lusts against the Spirit, and the Spirit
+> against the flesh; and these are contrary to one another,
+> so that you do not do the things that you wish."**
+
 ## Bible verse for August 3rd, 2026 (*Luke 18:25, NKJV*):
 > ✞ **"For it is easier for a camel to go through the
 > eye of a needle than for a rich man to enter the kingdom of God."**
