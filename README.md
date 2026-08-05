@@ -265,7 +265,6 @@ We will display previous Bible verses as well.
 > The help of my countenance
 > and my God."**
 
-
 ## Bible verse for February 14th, 2026 (*Matthew 6:24, NKJV*): 
 > ✞ **“No one can serve two masters;
 > for either he will hate the one and love the other,
@@ -273,20 +272,17 @@ We will display previous Bible verses as well.
 > and despise the other. You cannot
 > serve God and mammon."** 
 
-
 ## Bible verse for February 13th, 2026 (*Luke 19:26, KJV*): 
 > ✞ **“For I say unto you, That unto every one which hath shall be given; 
 > and from him that hath not, even that he hath shall be taken away from him."**
 
-
-## Bible verse for February 11th, 2026 (*Proverbs 23:24-25*): 
+## Bible verse for February 11th, 2026 (*Proverbs 23:24-25, NKJV*): 
 > ✞ **“The father of the righteous will greatly rejoice,
 > And he who begets a wise child will delight in him.
 > Let your father and your mother be glad,
 > And let her who bore you rejoice."**
 
-
-## Bible verse for February 10th, 2026 (*Ecclesiastes 9:4*): 
+## Bible verse for February 10th, 2026 (*Ecclesiastes 9:16, NKJV*): 
 > ✞ **“Wisdom is better than strength. Nevertheless the poor man's wisdom is despised,
 > And his words are not heard. Words of the wise, spoken quietly, should be heard
 > Rather than the shout of a ruler of fools. Wisdom is better than weapons of war;
