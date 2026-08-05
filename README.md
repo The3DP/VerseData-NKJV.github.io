@@ -141,7 +141,7 @@ We will display previous Bible verses as well.
 > Every knee shall bow to Me,
 > And every tongue shall confess to God"**
 
-## Bible verse for June 11th, 2026 (* 76:10, NKJV*):
+## Bible verse for June 11th, 2026 (*76:10, NKJV*):
 > ✞ **"Surely the wrath of man shall praise you;
 > With the remainder of wrath You shall gird yourself."**
 
