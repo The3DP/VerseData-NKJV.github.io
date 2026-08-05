@@ -288,6 +288,7 @@ We will display previous Bible verses as well.
 > Rather than the shout of a ruler of fools. Wisdom is better than weapons of war;
 > But one sinner destroys much good."**
 
+---
 
 ### Questions?
 Any hanging questions?
