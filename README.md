@@ -4,6 +4,12 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for August 5th, 2026 (*Proverbs 13:13, NKJV*):
+> ✞ **"He who despises the word will be destroyed,
+> but he who fears the commandment will be rewarded.
+> The law of the wise is a fountain of life,
+> to turn one away from the snares of death."**
+
 ## Bible verse for August 4th, 2026 (*Galatians 5:17, NKJV*):
 > ✞ **"For the flesh lusts against the Spirit, and the Spirit
 > against the flesh; and these are contrary to one another,
