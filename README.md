@@ -299,8 +299,7 @@ Just contact **d73928430@gmail.com**
 ### Verse Requests 
 If you'd like to request a bible verse 
 to be featured on this site, then please contact
-**d73928430@gmail.com** with "Verse Request (NKJV)" 
-as the email subject!
+**d73928430@gmail.com** with "Verse Request (NKJV)" as the email subject!
 Verse requests are always appreciated! :)
 
 ##### Made by [*The3DP*](https://github.com/The3DP)
