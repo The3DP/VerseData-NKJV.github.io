@@ -306,4 +306,9 @@ If you'd like to request a bible verse to be featured on this site, then please 
 **d73928430@gmail.com** with "Verse Request (NKJV)" as the email subject.
 Verse requests are always appreciated! :)
 
+### Other Sites
+If for whatever reason the Github Pages site
+for this repo is down, you're more than welcome 
+to check out [my site on w3schools](https://versedata.w3spaces.com/).
+
 ##### Made by [*The3DP*](https://github.com/The3DP)
