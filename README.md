@@ -3,7 +3,7 @@ Welcome to VerseData! This mini [**Github Pages**](https://docs.github.com/en/pa
 We will display previous Bible verses as well.
 
 ---
-
+ 
 ## Bible verse for August 6th, 2026 (*Luke 8:17, NKJV*):
 > ✞ **"For nothing is secret that will not be revealed,
 > nor anything that will not be known and come to light."**
