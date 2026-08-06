@@ -4,6 +4,10 @@ We will display previous Bible verses as well.
 
 ---
 
+## Bible verse for August 6th, 2026 (*Luke 8:17, NKJV*):
+> ✞ **"For nothing is secret that will not be revealed,
+> nor anything that will not be known and come to light."**
+
 ## Bible verse for August 5th, 2026 (*Proverbs 13:13, NKJV*):
 > ✞ **"He who despises the word will be destroyed,
 > but he who fears the commandment will be rewarded.
