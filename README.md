@@ -6,6 +6,11 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 10th, 2026 (*John 7:18, NKJV*):
+> ✞ **"He who speaks from himself seeks his own glory;
+> but He who seeks the glory of the One who sent him is true,
+> and no unrighteousness is in Him."**
+
 ## Bible verse for August 9th, 2026 (*2nd Timothy 3:16-17, NKJV*):
 > ✞ **"All scripture is given by inspiration of God,
 > and is profitable for doctrine, for reproof, for correction,
