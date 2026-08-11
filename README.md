@@ -6,6 +6,12 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 11th, 2026 (*Mark 9:49-50, NKJV*):
+> ✞ **"For everyone will be seasoned with fire, and every
+> sacrifice will be seasoned with salt. Salt is good, but
+> if the salt loses its flavor, how will you season it?
+> Have salt in yourselves, and have peace with one another."
+
 ## Bible verse for August 10th, 2026 (*John 7:18, NKJV*):
 > ✞ **"He who speaks from himself seeks his own glory;
 > but He who seeks the glory of the One who sent him is true,
