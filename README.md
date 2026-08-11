@@ -10,7 +10,7 @@ We will display previous Bible verses as well.
 > ✞ **"For everyone will be seasoned with fire, and every
 > sacrifice will be seasoned with salt. Salt is good, but
 > if the salt loses its flavor, how will you season it?
-> Have salt in yourselves, and have peace with one another."
+> Have salt in yourselves, and have peace with one another."**
 
 ## Bible verse for August 10th, 2026 (*John 7:18, NKJV*):
 > ✞ **"He who speaks from himself seeks his own glory;
