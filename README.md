@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 12th, 2026 (*Romans 14:22, NKJV*):
+> ✞ **"Do you have faith? Have it to yourself before God.
+> Happy is he who does not condemn himself in what he approves."**
+
 ## Bible verse for August 11th, 2026 (*Mark 9:49-50, NKJV*):
 > ✞ **"For everyone will be seasoned with fire, and every
 > sacrifice will be seasoned with salt. Salt is good, but
