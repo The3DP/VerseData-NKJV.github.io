@@ -6,6 +6,11 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 13th, 2026 (*Jude 13:20-21, NKJV*):
+> ✞ **"But you, beloved, building yourselves up on your most holy
+> faith, praying in the Holy Spirit, keep yourselves in the love of God,
+> looking for the mercy of our Lord Jesus Christ unto eternal life."**
+
 ## Bible verse for August 12th, 2026 (*Romans 14:22, NKJV*):
 > ✞ **"Do you have faith? Have it to yourself before God.
 > Happy is he who does not condemn himself in what he approves."**
