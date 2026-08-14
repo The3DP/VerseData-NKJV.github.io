@@ -6,6 +6,12 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 14th, 2026 (*Hebrews 5:13-14, NKJV*):
+> ✞ **"For everyone who partakes only of milk is unskilled in the word
+> of righteousness, for he is a babe. But solid food belongs to those
+> who are of full age, that is, those who by reason of use have their
+> senses exercised to discern both good and evil."**
+
 ## Bible verse for August 13th, 2026 (*Jude 13:20-21, NKJV*):
 > ✞ **"But you, beloved, building yourselves up on your most holy
 > faith, praying in the Holy Spirit, keep yourselves in the love of God,
