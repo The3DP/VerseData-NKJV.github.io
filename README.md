@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 15th, 2026 (*Romans 12:36, NKJV*):
+> ✞ **"For of Him and through Him and to Him are all things,
+> to whom be glory forever. Amen."**
+
 ## Bible verse for August 14th, 2026 (*Hebrews 5:13-14, NKJV*):
 > ✞ **"For everyone who partakes only of milk is unskilled in the word
 > of righteousness, for he is a babe. But solid food belongs to those
