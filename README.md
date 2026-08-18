@@ -11,7 +11,6 @@ We will display previous Bible verses as well.
 attributes are clearly seen, being understood by 
 the things that are made, even His eternal power
 and Godhead, so that they are without excuse."**
-<img width="468" height="113" alt="image" src="https://github.com/user-attachments/assets/b506608c-82cd-4b9b-b3c5-b0f50d3fe262" />
 
 ## Bible verse for August 15th, 2026 (*Romans 12:36, NKJV*):
 > ✞ **"For of Him and through Him and to Him are all things,
