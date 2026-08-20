@@ -6,6 +6,9 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 20th, 2026 (*Matthew 7:16, NKJV*):
+> ✞ **"If any man have ears to hear, let him hear."**
+
 ## Bible verse for August 18th, 2026 (*Romans 1:20, NKJV*):
 > ✞ **"For since the creation of the world His invisible 
 attributes are clearly seen, being understood by 
