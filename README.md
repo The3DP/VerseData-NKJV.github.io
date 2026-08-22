@@ -6,7 +6,7 @@ We will display previous Bible verses as well.
 
 ---
  
-## Bible verse for August 20th, 2026 (*Proverbs 28:13, NKJV*):
+## Bible verse for August 22nd, 2026 (*Proverbs 28:13, NKJV*):
 > ✞ **"He who covers his sins will not prosper,
 > but whoever confesses and forsakes them
 > will have mercy."**
