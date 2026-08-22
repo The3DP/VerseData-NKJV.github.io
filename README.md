@@ -6,6 +6,11 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 20th, 2026 (*Proverbs 28:13, NKJV*):
+> ✞ **"He who covers his sins will not prosper,
+> but whoever confesses and forsakes them
+> will have mercy."**
+
 ## Bible verse for August 20th, 2026 (*Matthew 7:16, NKJV*):
 > ✞ **"If any man have ears to hear, let him hear."**
 
@@ -63,7 +68,7 @@ and Godhead, so that they are without excuse."**
 > ✞ **"For nothing is secret that will not be revealed,
 > nor anything that will not be known and come to light."**
 
-## Bible verse for August 5th, 2026 (*Proverbs 13:13, NKJV*):
+## Bible verse for August 5th, 2026 (*13:13, NKJV*):
 > ✞ **"He who despises the word will be destroyed,
 > but he who fears the commandment will be rewarded.
 > The law of the wise is a fountain of life,
