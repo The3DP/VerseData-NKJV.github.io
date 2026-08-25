@@ -6,6 +6,11 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 24th, 2026 (*Matthew 5:39, NKJV*):
+> ✞ **"But I tell you not to resist an evil person.
+> But whoever slaps you on the right cheek,
+> turn the other to him also."**
+
 ## Bible verse for August 22nd, 2026 (*Proverbs 28:13, NKJV*):
 > ✞ **"He who covers his sins will not prosper,
 > but whoever confesses and forsakes them
