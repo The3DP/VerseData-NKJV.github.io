@@ -6,6 +6,15 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 25th, 2026 (*Jeremiah 4:22, NKJV*):
+> ✞ **"For My people are foolish,
+> they have not known Me.
+> They are silly children,
+> and they have no understanding.
+> They are wise to do evil,
+> but to do good they have no knowledge."**
+
+
 ## Bible verse for August 24th, 2026 (*Matthew 5:39, NKJV*):
 > ✞ **"But I tell you not to resist an evil person.
 > But whoever slaps you on the right cheek,
