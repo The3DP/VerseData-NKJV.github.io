@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 26th, 2026 (*Revelation 3:21, NKJV*):
+> ✞ **"To him who overcomes I will grant to sit with Me on My throne,
+> as I also overcame and sat down with My Father on His throne."**
+
 ## Bible verse for August 25th, 2026 (*Jeremiah 4:22, NKJV*):
 > ✞ **"For My people are foolish,
 > they have not known Me.
