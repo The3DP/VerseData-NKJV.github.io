@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 27th, 2026 (*Isaiah 29:15, NKJV*):
+> ✞ **"Woe to those who seek deep to hide their counsel far from the Lord,
+> and their works in the dark; They say, 'Who sees us?' and, 'Who knows us?'"**
+
 ## Bible verse for August 26th, 2026 (*Revelation 3:21, NKJV*):
 > ✞ **"To him who overcomes I will grant to sit with Me on My throne,
 > as I also overcame and sat down with My Father on His throne."**
@@ -17,7 +21,6 @@ We will display previous Bible verses as well.
 > and they have no understanding.
 > They are wise to do evil,
 > but to do good they have no knowledge."**
-
 
 ## Bible verse for August 24th, 2026 (*Matthew 5:39, NKJV*):
 > ✞ **"But I tell you not to resist an evil person.
