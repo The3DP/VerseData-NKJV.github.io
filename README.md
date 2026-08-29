@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 27th, 2026 (*Proverbs 20:16, NKJV*):
+> ✞ **"Take the garment of one who is surety for a stranger,
+> and hold it as a pledge when it is for a seductress."**
+
 ## Bible verse for August 27th, 2026 (*Isaiah 29:15, NKJV*):
 > ✞ **"Woe to those who seek deep to hide their counsel far from the Lord,
 > and their works in the dark; They say, 'Who sees us?' and, 'Who knows us?'"**
