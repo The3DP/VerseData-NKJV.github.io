@@ -6,6 +6,11 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 30th, 2026 (*1st Corinthians 15:28, NKJV*):
+> ✞ **"Now when all things are made subject to Him, then the Son
+> Himself will also be subject to Him who put all things under Him,
+> that God may be all in all."**
+
 ## Bible verse for August 29th, 2026 (*Proverbs 20:16, NKJV*):
 > ✞ **"Take the garment of one who is surety for a stranger,
 > and hold it as a pledge when it is for a seductress."**
