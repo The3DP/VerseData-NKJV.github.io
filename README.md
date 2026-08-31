@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for August 31st, 2026 (*Ephesians 6:10, NKJV*):
+> ✞ **"Finally, my brethren, be strong in the Lord and in
+> the power of His might."**
+
 ## Bible verse for August 30th, 2026 (*1st Corinthians 15:28, NKJV*):
 > ✞ **"Now when all things are made subject to Him, then the Son
 > Himself will also be subject to Him who put all things under Him,
