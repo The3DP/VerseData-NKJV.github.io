@@ -6,7 +6,7 @@ We will display previous Bible verses as well.
 
 ---
  
-## Bible verse for September 2nd, 2026 (*Jeremiah 17:13*):
+## Bible verse for September 2nd, 2026 (*Jeremiah 17:13, NKJV*):
 > ✞ **"O Lord, the hope of Israel,
 > all who forsake You shall be ashamed."**
 
