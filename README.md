@@ -209,12 +209,9 @@ and Godhead, so that they are without excuse."**
 > Let them be caught in the plots
 > which they have devised."**
 
-## Bible verse for July 2nd, 2026 (*Romans 13:10*):
-> ✞ **"Render therefore to all their due:
-> taxes to whom taxes are due,
-> customs to whom customs,
-> fear to whom fear,
-> honor to whom honor."**
+## Bible verse for July 2nd, 2026 (*Romans 13:10, NKJV*):
+> ✞ **"Love does no harm to a neighbor,
+> therefore love is the fufillment of the law."**
 
 ## Bible verse for July 1st, 2026 (*Lamentations 2:16, NKJV*):
 > ✞ **All your enemies have opened their mouth against you;
