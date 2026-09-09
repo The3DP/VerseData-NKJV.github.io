@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for September 9th, 2026 (Isaiah 64:8, NKJV):
+> ✞ **"But now, O Lord, You are our Father; We are the clay,
+> and You our potter; And all we are the work of Your hand."**
+
 ## Bible verse for September 8th, 2026 (Psalm 102:12, NKJV):
 > ✞ **"But you, O Lord, shall endure forever,
 > And the remembrance of Your name to all generations."**
