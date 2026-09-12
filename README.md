@@ -6,6 +6,10 @@ We will display previous Bible verses as well.
 
 ---
  
+## Bible verse for September 12th, 2026 (Genesis 9:13):
+> ✞ **"I set My rainbow in the cloud, and it shall be for the 
+sign of the covenant between Me and the earth."**
+
 ## Bible verse for September 9th, 2026 (Isaiah 64:8, NKJV):
 > ✞ **"But now, O Lord, You are our Father; We are the clay,
 > and You our potter; And all we are the work of Your hand."**
