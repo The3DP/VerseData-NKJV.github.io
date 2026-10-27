@@ -434,6 +434,6 @@ Verse requests are always appreciated! :)
 ### Other Sites
 If for whatever reason the Github Pages site
 for this repo is down, you're more than welcome 
-to check out [my site on w3schools](https://versedata.w3spaces.com/).
+to check out [my personal site](https://n5win.net/).
 
 ##### Made by [*The3DP*](https://github.com/The3DP)
