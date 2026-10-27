@@ -384,7 +384,7 @@ and Godhead, so that they are without excuse."**
 > So he who waits on his
 > master will be honored"**
 
-## Bible verse for February 16th,  (*Psalm 42:11, NKJV*): 
+## Bible verse for February 16th  (*Psalm 42:11, NKJV*): 
 > ✞ **“Why are you cast down,
 > O my soul?
 > And why are you disquieted
