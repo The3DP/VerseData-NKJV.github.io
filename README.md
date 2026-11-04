@@ -6,6 +6,10 @@ We will also display Bible verses from previous days.
 
 ---
  
+## Bible verse for November 4th, (2nd Timothy 2:22):
+> ✞ **"Flee also youthful lusts; but pursue righteousness, faith, love,
+peace with those who call on the Lord out of a pure heart."**
+
 ## Bible verse for September 12th (Genesis 9:13):
 > ✞ **"I set My rainbow in the cloud, and it shall be for the 
 sign of the covenant between Me and the earth."**
