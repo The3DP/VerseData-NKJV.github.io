@@ -5,7 +5,7 @@ We will also display Bible verses from previous days.
 <img width="1007" height="570" alt="IMG_2272" src="https://github.com/user-attachments/assets/a93d75b8-4c7d-4eae-9d37-c4865e57dcba" />
 
 ---
- 
+
 ## Bible verse for November 4th, (2nd Timothy 2:22):
 > ✞ **"Flee also youthful lusts; but pursue righteousness, faith, love,
 peace with those who call on the Lord out of a pure heart."**
